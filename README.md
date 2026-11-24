@@ -1,2 +1,2 @@
-# kobe-emergency-website
-emergency and blood donation app
+kai ai 
+customer support and intelligence ai in tz
